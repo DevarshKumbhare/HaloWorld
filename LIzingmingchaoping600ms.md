@@ -1,1 +1,1 @@
-communist
+capitalist!!!
