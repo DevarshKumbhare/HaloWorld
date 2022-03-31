@@ -1,1 +1,1 @@
-print("Kill me")
+print("MrBeast @v1")
